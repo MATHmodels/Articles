@@ -1,5 +1,6 @@
-[数学模型]微信公众号：死于新冠的康威和他的生命游戏
+死于新冠的康威和他的生命游戏
 
-链接: https://pan.baidu.com/s/1uG4f0fL0p_SfKlxr8kmkSg  密码: liof
+链接: https://pan.baidu.com/s/1uG4f0fL0p_SfKlxr8kmkSg  
+密码: liof
 
-微信搜索[数学模型]关注本公众号。https://zhuanlan.zhihu.com/MATHmodels
+微信搜索“数学模型”关注本公众号
